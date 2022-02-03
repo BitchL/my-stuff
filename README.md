@@ -1,1 +1,1 @@
-everythinng i add here ins't cop ying pls understand
+everything i add here ins't copying pls understand
